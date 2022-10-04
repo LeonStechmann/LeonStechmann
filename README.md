@@ -13,3 +13,5 @@ Finishing on January 6th '23.
 
 #### Connect with me!
 - [LinkedIn](https://de.linkedin.com/in/leon-stechmann)
+
+![](https://media.giphy.com/media/scZPhLqaVOM1qG4lT9/giphy.gif)
